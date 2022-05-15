@@ -1,1 +1,1 @@
-# stankostroymash
+# Lending from stankstroymash.ru
